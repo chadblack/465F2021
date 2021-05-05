@@ -23,11 +23,7 @@ Fall 2021
 >
 > outside of time! / Fuera del tiempo!
 >
-> Sor Juana Inés de la Cruz [1689]  
-
-<br /> 
-
-<br />
+> Sor Juana Inés de la Cruz [1689]    
 
 
 
