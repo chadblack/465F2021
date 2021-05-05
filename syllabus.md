@@ -3,7 +3,7 @@ title: syllabus
 layout: page
 ---
 
-**Gender and Sexuality in Early Latin America**
+**Gender and Sexuality in Early Latin America**  
 HILA 465/LAC 466  
 Fall 2021  
 
