@@ -116,7 +116,7 @@ a small price to pay to be back in University community.
 Dr. Black or your TA ahead of time. We're not making an Inquisition into your
 absences, so the reasons you can't attend are not as important as giving us the
 heads up. If you have *any* symptoms or have been exposed to COVID, please do
-not come to class! Just send is a quick email, and get tested.
+not come to class! Just send us a quick email, and get tested.
 
 
 **Deadlines:** Assignments must uploaded to Canvas by the end of the day on
