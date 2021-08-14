@@ -78,13 +78,18 @@ Tuesday, September 7, 2021
 
 **Read:**
 
-*
+* *Handbook of Inca Mythology*, pp 1-28.
 
 Thursday, September 9, 2021
 
 **Read:**
 
-*
+* Frank Salomon, "Indian Women of Early Colonial Quito as Seen Through Their
+  Testaments," *The Americas* 44:3 (Jan. 1988), 325-341.
+
+* Selections from Guaman Poma de Ayala, *El Primer Nuevo Crónica y Buen
+  Gobierno*, Trans. John V. Murra, et. al. Mexico: Siglo Veintiuno, 1992
+  [1615]. Text and drawings.
 
 **Due:**  
 
@@ -94,13 +99,15 @@ Tuesday, September 14, 2021
 
 **Read:**
 
-* 
+* Schroeder et. al. Chapters 1, 2, 5.
 
 Thursday, September 16, 2021
 
 **Read:**
 
-*
+* Rosemary Joyce, "Gender, Performance, Power, and Reproduction" and "Becoming
+  Human: Body and Person in Aztec Tenochtitlan," in *Gender and Power in
+  Prehispanic Mesoamerica* (Austin: University of Texas, 2000).
 
 **Due:**  
 
@@ -110,31 +117,25 @@ Tuesday, September 21, 2021
 
 **Read:**
 
-*
+* Poska, Allyson. 1996. "When Love Goes Wrong: Getting out of Marriage in
+   Seventeenth-Century Spain," Journal of Social History 29.4: 873-882.
+
+or, 
+
+* Behrend-Martinez, Edward. "Manhood and the Neutered Body in Early Modern
+   Spain." Journal of Social History 38, no. 4 (2005): 1073-1093.
+
 
 Thursday, September 23, 2021
 
 **Read:**
 
-*
+* Taylor, Scott. "Credit, Debt, and Honor in Castile, 1600-1650" Journal of
+  Early Modern History 7:1-2 (January 2003), 8-27.
 
 **Due:**  
 
 ## Week 7 -- Fall Break + Film
-
-Tuesday, September 28, 2021
-
-**Read:**
-
-*
-
-Thursday, September 30, 2021
-
-**Read:**
-
-*
-
-**Due:**  
 
 ## Week 8 -- The Colonial Crucible II
 
