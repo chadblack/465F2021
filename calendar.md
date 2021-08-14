@@ -16,33 +16,61 @@ Thursday, August 19, 2021
 
 Tuesday, August 24, 2021
 
+We start this week by examining assumptions we often make about the
+relationship between the past and the present. It is not uncommon for people to
+imagine the present as better than the past, particularly given the rapid
+technological changes of the last 150 years. Walter Benjamin asks us to examine
+such assumptions, that History is a story of progress, as well as what the
+obligations of the present are to the past. This is a curious reading. Treat it
+like a puzzle, and see if you can unlock Benjamin's claims.
+
 **Read:**
 
-* 
+* Walter Benjamin, “Theses on the Philosophy of History,” Illuminations (New York: Houghton Mifflin Harcourt, 2019).
+
+Bring to class a list of categories and concepts divided into two columns:
+HISTORICISM and HISTORICAL MATERIALISM. As you read Benjamin’s text, add any
+concepts, keywords, or categories to one of these two columns. Historicism here
+is what Benjamin associates with progress, history-as-progress, etc.
 
 Thursday, August 26, 2021
 
 **Read:**
 
-*
+* Joan Wallach Scott, "Gender: A Useful Category of Historical Analysis" *The
+  American Historical Review* 91, no. 5 (1986): 1053-075.
 
-**Due:**  
+As you read this article, consider how Scott defines gender. Is gender as
+a category of historical analysis essentially women's history? If not, how does
+it differ? Take notes on the reading and be ready to discuss in class.
+
 
 ## Week 3 -- History and Theory II
+
+This week we will continue thinking about larger historical questions in
+relation to theory and methodology.
 
 Tuesday, August 31, 2021
 
 **Read:**
 
-*
+* Jeanne Boydston, "Gender as a Question of Historical Analysis," *Gender
+  & History* 20.3 (Nov 2008): 558-583.
+
+How does Boydston, writing in 2008, differ from Scott writing some twenty years
+before?
 
 Thursday, September 2, 2021
 
 **Read:**
 
-*
+* Pete Sigal, "Latin America and the Challenge of Globalizing the History of
+  Sexuality," *The American Historical Review* Volume 114, Issue 5 (December
+  2009), 1340–1353.
 
-**Due:**  
+**Due:** Write a 1 page reaction to the last two weeks of reading, drawing from
+our discussions of History, Gender, and Sexuality. What do you see as the most
+difficult challenges in doing the history of gender and sexuality? 
 
 ## Week 4 -- Before the Conquest I
 
@@ -66,7 +94,7 @@ Tuesday, September 14, 2021
 
 **Read:**
 
-*
+* 
 
 Thursday, September 16, 2021
 
