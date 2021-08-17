@@ -91,7 +91,9 @@ Thursday, September 9, 2021
   Gobierno*, Trans. John V. Murra, et. al. Mexico: Siglo Veintiuno, 1992
   [1615]. Text and drawings.
 
-**Due:**  
+**Due:** Write a research memo on Salomon's article. Instructions for how to
+write a research memo are available
+[here](https://chadblack.net/LatAmSport2019/memo/).
 
 ## Week 5 -- Before the Conquest II
 
@@ -109,7 +111,8 @@ Thursday, September 16, 2021
   Human: Body and Person in Aztec Tenochtitlan," in *Gender and Power in
   Prehispanic Mesoamerica* (Austin: University of Texas, 2000).
 
-**Due:**  
+**Due:** Write a one page reaction paper to the week's readings. Can you
+identify parallels between the chapters in Schroeder and Joyce? 
 
 ## Week 6 Before the Conquest III
 
@@ -133,25 +136,29 @@ Thursday, September 23, 2021
 * Taylor, Scott. "Credit, Debt, and Honor in Castile, 1600-1650" Journal of
   Early Modern History 7:1-2 (January 2003), 8-27.
 
-**Due:**  
+**Due:** Choose one of this week's readings and write a research memo on the
+article.
 
-## Week 7 -- Fall Break + Film
+## Week 7 -- Fall Break
 
-## Week 8 -- The Colonial Crucible II
+**Due:** Topic and preliminary bibliography for your final paper. 
+
+## Week 8 -- The Colonial Crucible I
 
 Tuesday, October 5, 2021
 
 **Read:**
 
-*
+* Schroeder, et.al., Chapters 3-4
 
 Thursday, October 7, 2021
 
 **Read:**
 
-*
+* Schroeder, et.al., Chapter 7
 
-**Due:**  
+**Due:** Write a 1 page reaction to this week's readings.
+
 
 ## Week 9 -- The Colonial Crucible II
 
@@ -159,15 +166,24 @@ Tuesday, October 12, 2021
 
 **Read:**
 
-*
+* Thornton, John. "Slavery and African Social Structure." In Africa and
+  Africans in the Making of the Atlantic World, 1400-1800 (2nd ed.).
+  Cambridge: Cambridge Univ. Press, 1998 (72-98).
+
 
 Thursday, October 14, 2021
 
 **Read:**
 
-*
+* Lane, Kris. Captivity and Redemption: Aspects of Slave Life in Early
+  Colonial Quito and Popayan." The Americas 57:2 (Oct. 2000), 225-246.
 
-**Due:**  
+* Socolow, Susan Migden. "Permission to Marry: Eighteenth-Century Matrimonial
+  Files." In Colonial Lives: Documents on Latin American History, 1550-1850,
+  ed. Richard Boyer and Geoffrey Spurling. New York: Oxford Univ. Press, 2000
+  (236-248).
+
+**Due:** Research memo on the Lane article.
 
 ## Week 10 -- Marriage and Family
 
@@ -183,7 +199,7 @@ Thursday, October 21, 2021
 
 *
 
-**Due:**  
+**Due:** Research memos on 5 of your paper sources.
 
 ## Week 11 -- The Religious Option
 
@@ -191,15 +207,24 @@ Tuesday, October 26, 2021
 
 **Read:**
 
-*
+* Lavrin, Asunción. "Sexuality in Colonial Mexico: A Church Dilemma." In
+   Sexuality & Marriage in Colonial Latin America, ed. Asunción Lavrin.
 
 Thursday, October 28, 2021
 
 **Read:**
 
-*
+* van Deusen, Nancy E. "Defining the Sacred and the Worldly: Beatas and
+  Recogidas in Late-Seventeenth-Century Lima." Colonial Latin American
+  Historical Review 6:4 (Fall 1997).
 
-**Due:**  
+* Holler, Jacqueline. "The Spiritual and Physical Ecstasies of a
+  Sixteenth-Century Beata: Marina de San Miguel Confesses Before the Mexican
+  Inquisition." In Colonial Lives, Documents on Latin American History,
+  1550-1850, ed. Richard Boyer and Geoffrey Spurling. New York: Oxford Univ.
+  Press, 2000 (77-100).
+
+**Due:** Write a 1 page response to the case of Marina de San Miguel.
 
 ## Week 12 -- Sexuality and Society I
 
@@ -207,7 +232,7 @@ Tuesday, November 2, 2021
 
 **Read:**
 
-*
+* 
 
 Thursday, November 4, 2021
 
@@ -239,15 +264,19 @@ Tuesday, November 16, 2021
 
 **Read:**
 
-*
+* *Baptism Through Incision: The Postmortem Cesarean Operation in the Spanish
+  Empire* 41-93.
+
 
 Thursday, November 18, 2021
 
 **Read:**
 
-*
+* Black, Chad. "Negotiating Adultery in Bourbon Quito," *Routledge Reader on
+  Colonialism and Sexuality*. London: Routledge Press, 2021.
 
-**Due:**  
+**Due:** Write a one page response to Baptism through Incision. Consider how
+this treatise was politically reactionary.
 
 ## Week 15 -- Thanksgiving
 
