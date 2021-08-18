@@ -18,10 +18,10 @@ September 28th.** Your preliminary bibliography should consist of 8 academic
 articles and monographs on your topic. 10 points.
 
 Part Two: Chose four sources from your bibliography and write research memos on
-those sources. **Due October 22nd.**
+those sources. **Due October 22nd.** 20 points.
 
 Part Three: Your full paper. For further instructions, see [here](). **Due:
-November 23rd.**
+November 23rd.** 70 points.
 
 
 # Weekly assignments (40%)

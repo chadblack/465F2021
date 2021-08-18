@@ -208,7 +208,7 @@ Tuesday, October 19, 2021
 
 Thursday, October 21, 2021
 
-**Due:** Research memos on 5 of your paper sources.
+**Due:** Research memos on 4 of your paper sources.
 
 ## Week 11 -- The Religious Option
 
