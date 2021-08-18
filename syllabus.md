@@ -108,7 +108,7 @@ manner with appropriate documentation.
 to mask indoors. We will comply with this requirement. The Delta variant of
 this virus is extremely contagious, with an R0 somewhere [between
 5-9](https://www.sfchronicle.com/health/article/CDC-says-the-delta-variant-is-as-contagious-as-16356370.php) (one person will infect
-on average 5-9 people). This turns a classroom of 100+ people into
+on average 5-9 people). This turns the classroom into
 a potentially high-risk situation. Wearing a mask for 75 minutes indoors is
 a small price to pay to be back in University community.
 
@@ -147,7 +147,8 @@ TAs outside of class. The advantages include: extra help on an assignment
 or preparation for exams; clarification of materials covered in lecture,
 discussion of comments on your work; discussion of this or related courses.
 I have an open door policy during my drop-in hours. I will be there, and you
-are welcome to come by for any reason. Your TAs have the same.
+are welcome to come by for any reason. Your TAs have the same. I'm also
+available via zoom by appointment.
 
 **Changes:** I reserve the write to change this syllabus as the semester
 progresses. This is not a contract, but rather a document to guide expectations
