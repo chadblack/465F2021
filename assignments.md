@@ -35,7 +35,8 @@ Students will write a self-evaluation of their work and participation over the
 semester. Explain how your skills and mastery of the material has developed,
 and what you found most rewarding and most challenging from the course.
 Make a list of each class you did not attend, and explain why you were absent.
-Refer to [this rubric]() for your evaluation. Give yourself a grade.
+Refer to [this
+rubric](http://chadblack.net/465F2021/images/Self-Evaluation.docx) for your evaluation. Give yourself a grade.
 
 **Due: December 7th.**
 
