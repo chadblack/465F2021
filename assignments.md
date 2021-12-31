@@ -1,5 +1,5 @@
 ---
-title: calendar
+title: assignments
 layout: page
 ---
 
